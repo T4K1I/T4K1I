@@ -73,11 +73,11 @@ Launching a national geology outreach program to inspire young minds.
 
 📬 Let's Connect!
 
-📧 Email: takieddine@example.com
+📧 Email: behloultakieddine@gmail.com
 
-🔗 LinkedIn: linkedin.com/in/takieddine-behloul
+🔗 LinkedIn: www.linkedin.com/in/t4k1
 
-🐦 Twitter: @DrGeoTakieddine
+🐦 Twitter: @T4k174k1
 
 🌐 Personal Website: takieddine-behloul.dev (Coming Soon!)
 
